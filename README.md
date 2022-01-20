@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ fezaren
-- 👀 ben  gamerlikle ilgileniyorum
+- 👀 ben  gamerlikle ilgileni
 - 💞️ şu anda okuyorum
 - 📫  bana e mail  den ulaşabilirsiniz
 
